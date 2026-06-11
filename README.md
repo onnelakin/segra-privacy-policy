@@ -1,0 +1,1 @@
+# segra-privacy-policy
